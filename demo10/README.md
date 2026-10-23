@@ -2,4 +2,4 @@
 
 I'll will be place in google
 
-Writen by - God
+Writen by - God.
